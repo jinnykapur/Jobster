@@ -7,7 +7,7 @@
 ## Jashanjit Kaur  (2210990440)
 
 
-### Submitted to:
-### Vikas Patel
-### Baljit Kaur
+## Submitted to:
+## Vikas Patel
+## Baljit Kaur
 
